@@ -3,6 +3,7 @@ title: "কিভাবে পড়াশুনায় মনোযোগ বাড়
 datePublished: Sun Mar 17 2024 08:54:44 GMT+0000 (Coordinated Universal Time)
 cuid: cltva6ho800080al289ox2zrk
 slug: 4kav4ka4kat4ka4kas4kehiocmqucnnocmvucmtucngecmqocmvucnnydgpq7gpqjgp4vgpqgp4vgppcg4kas4ka4kec4ka4kas4kelic8g4kav4ka4kat4ka4kas4kehiocmlecmqocnjecmuocnhcmqocnjecmncnjecmsocnhcmtucmqcdgpqzgpr7gp5zgpr7gpqzgp4s
+cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/t5EK3z4vN6g/upload/20a95527bc124041659d067bf94a0eb7.jpeg
 tags: student, concentration-exercises-for-students, 4kaq4kec4ka4ka24keb4kao4ka4kefiocmrucmqocnicmrcnicmlw
 
 ---
